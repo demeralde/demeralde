@@ -8,4 +8,4 @@ I have **9+ years experience**, including 3+ years leading large-scale, complex 
 
 If you're looking for someone to lead your project who produces **high quality work**, is reliable, and is skilled across the board, you've found the right guy. I'm also available for **consulting**.
 
-Check out [my portfolio](https://daniel.emeralde.me) for a complete list of my skills and experience.
+Check out [**my portfolio**](https://daniel.emeralde.me) for a complete list of my skills and experience.
