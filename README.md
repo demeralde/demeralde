@@ -1,4 +1,4 @@
-# Senior full-stack software engineer
+# Senior full-stack engineer
 
 Hey there—I'm Daniel.
 
